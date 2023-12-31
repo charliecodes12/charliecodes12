@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @charliecodes12
+- 👀 I’m interested in all types of coding
+- 🌱 I’m currently learning html
+- 💞️ I’m looking to collaborate on your coding projects
+- 📫 How to reach me cjschrage12@gmail.com
